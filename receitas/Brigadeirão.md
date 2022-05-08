@@ -20,7 +20,7 @@
 
 **2.** Leve ao micro-ondas na potência alta por 8 a 10 minutos ou até que esteja com consistência firme. Desenforme, espere esfriar, decore com chocolate granulado e leve à geladeira.
 
-
+Fim!
 
 #### Fonte: https://receitas.globo.com/brigadeirao-de-microondas-4d5147f852e0b252bc00e4e2.ghtml
 
